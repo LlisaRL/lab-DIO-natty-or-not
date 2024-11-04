@@ -21,9 +21,10 @@ Os resultados estão dentro deste projeto.
 
 ![Pic_1](https://github.com/user-attachments/assets/04764b8b-315e-4488-9bd7-bf8b5e1db152)
 ![Pic_2](https://github.com/user-attachments/assets/2fae667d-ee18-4f0d-9869-a09720b66747)
-![Pic_3](https://github.com/user-attachments/assets/297ef6f3-38cd-4966-a4e5-6d419b5daea8)
+![Pic_3](https://github.com/user-attachments/assets/ad6f3c0e-3b98-42d8-a0e8-6c0acce3dd5f)
 ![Pic_4](https://github.com/user-attachments/assets/7971c8ba-c06b-4249-9547-1d0d56d3b35b)
-![Pic_5](https://github.com/user-attachments/assets/84183cab-6689-40a1-8b34-c001358b6729)
+![Pic_5](https://github.com/user-attachments/assets/6cef7fb9-4700-4116-80af-600c62ee301a)
+
 
 
 Spoiler: continue lendo abaixo
